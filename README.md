@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abijith000
+- 👋 Hi, I’m @abijith
 - 👀 I’m interested in automotives 
 - 🌱 I’m currently learning electrical engg
 - 💞️ I’m looking forward to study web designing
